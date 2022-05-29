@@ -1,0 +1,2 @@
+# kejlog
+kejlogger baj GADZBEREG
